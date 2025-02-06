@@ -1,5 +1,4 @@
 I use Arch btw.           
-Also this my websit: https://dvdznf.xyz             
 ^//w//^
 <!---
 Dvd-Znf/Dvd-Znf is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
